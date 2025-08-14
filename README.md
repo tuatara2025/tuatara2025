@@ -1,5 +1,5 @@
 #### 👋 Hi, I’m @tuatara2025
-- 🌱 I test things on this
+- 🌱 I test things on this one. Check out my main Github: [@cherishh](https://github.com/cherishh)
 - 📫 Reach me via happyroad002@gmail.com
 
 
